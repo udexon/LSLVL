@@ -6,6 +6,17 @@
 - 孔孟莊老孫袁蒋 复兴中华
 - 马恩列史毛周邓 世界大同
 
+- 萬夀無疆 Wan4 Shou4 Wu2 Jiang
+Living to 10,000 years old; Rule an unbounded territory.
+
+- 孔孟莊老孫袁蒋 复兴中华
+- Confucius Mencius Zhuangzi Laozi Sun-Yat-Sen Yuan-Shi-Kai Chiang-Kai-Sek; Revive the Great China.
+- 孔 Kong3 孟 meng4 莊 Zhuang 老 Lao3 孫 Sun 袁 Yuan2 蒋 Jiang3 复 Fu2 兴 Xing 中 Zhong 华 Hua2
+
+- 马恩列史毛周邓 世界大同
+- Marx Engels Lenin Stalin Mao-Zedong Zhou-Enlai Deng-Xiaoping; Towards One Harmonious World.
+- 马 Ma3 恩 En 列 Lie4 史 Shi3 毛 Mao 周 Zhou 邓 Deng4  世 Shi4 界 Jie4 大 Da4 同 Tong2
+
 Make video about this and explain in multiple languages.
 
 Backround Music: 包青天 两岸文化统一的年代
