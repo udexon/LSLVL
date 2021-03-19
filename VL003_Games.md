@@ -3,8 +3,8 @@
 1. 天下第一联
 
 - 萬夀無疆
-- 孔孟莊老孫袁蒋
-- 马恩列史毛周邓
+- 孔孟莊老孫袁蒋 复兴中华
+- 马恩列史毛周邓 世界大同
 
 Make video about this and explain in multiple languages.
 
@@ -30,3 +30,8 @@ The most famous political Couplet from the Qing Dynasty, according to Ludingji, 
 
 - 地镇高岗,一派溪山千古秀；
 - 门朝大海,三河峡水万年流。
+
+4. 天增歳月人增夀 春满乾坤福满門
+
+5. It may be an innovative approach to learn Chinese by Couplets. Obviously this is not intended at beginners. However, regardless of the proficiency levels of the learners, we believe that the contents of these couplets may interest the readers, from the historical, politcal and cultural perspectives. It is a bit like learning English by reciting Shapkespeare's. It may take ages for the learners to completely appreciate the source, but it does give the learners something interesting to look forward to.
+
