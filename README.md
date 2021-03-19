@@ -1,7 +1,6 @@
 # LSLVL
 LSLVL Learn a Second Language by Video Blogging
 
-# GQ014: LSLVL Learn a Second Language by Video Blogging
 
 1. Douyin (China Tiktok) videos of blind students in Guizhou practising English.
 
