@@ -17,3 +17,8 @@ since, let's say, Kentucky Fried Chicken?
 As we have highlighted many times elsewhere, in LSLVL:
 - One or more students, under the guidance of a teacher or tutor, make a short video, to demonstrate the usage and explanation of one or two new words, with one or two sentences.
 
+To be brutally honest, the hardest thing to do in networking (getting to know people)
+is finding an excuse.
+
+So isn't LSLVL the best excuse anyone can use to strike up
+a conversation (isn't even this a pun?)
