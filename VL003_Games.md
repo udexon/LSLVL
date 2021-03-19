@@ -32,6 +32,10 @@ If a foreigner (老外 Laowai) is able to play the couplet game, then you will b
 
 As such, we can only do this without interference outside China.
 
+The secret recipe of this particular couplet is basically to contrast the 7 most influential historical figures of "Old China" (from Confucius to Chiang-Kai-Sek), versus the 7 most influential historical figures for "New China" (from Karl Marx to Deng-Xiaoping), each followed by a 4 character proverb (cheng2 yu3) that describes the ideals for China and the World.
+
+To play the couplet game, one party usually disclose the first half of the couplet, to challenge the opponent to create a matching half. Also, you may hide the "theme" of the couplet, and ask the opponent to create one.
+
 
 3. I suppose in any age throughout Chinese history, scholars would compete to create the First Couplet 天下第一联 of their age. Obviously, the Qing Dynasty has been infamous of the supression of Han literature. As such, famous couplets associated with the Han Rebellion 反清复明 were only circulated underground, and obivously known by the Imperial Secret Police.
 
