@@ -15,6 +15,6 @@ Scripts in multiple languages needed (please contribute):
 If a foreigner (老外 Laowai) is able to play the couplet game, then you will be accepted as "one of us".
 
 
-2. Since the passing of Mao Zedong, an accomplised poet himself, few political Duilians or Poems have been publicized, as by tradition, Duilians or Poems represent the perspective of a high ranking Mandarin or the Emperor himself. Conversely, political Duilians or Poems become the highest form of art, as they will inspire and influence all Chinese 天下万民。
+2. Since the passing of Mao Zedong, an accomplised poet himself, few political Duilians or Poems have been publicized, as by tradition, Duilians or Poems represent the perspective of a high ranking Mandarin or the even Emperor himself. Conversely, political Duilians or Poems become the highest form of art, as they will inspire and influence all Chinese 天下万民。
 
 As such, we can only do this without interference outside China.
