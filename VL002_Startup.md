@@ -13,3 +13,7 @@ by the COVID19 pandemic, then you may have a good chance
 to improve your karma, so to speak, by helping others,
 as we hope you will see one of the best startup business model
 since, let's say, Kentucky Fried Chicken?
+
+As we have highlighted many times elsewhere, in LSLVL:
+- One or more students, under the guidance of a teacher or tutor, make a short video, to demonstrate the usage and explanation of one or two new words, with one or two sentences.
+
